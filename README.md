@@ -1,2 +1,0 @@
-# DARIO
-DARIO APP UPDATES (Android)
